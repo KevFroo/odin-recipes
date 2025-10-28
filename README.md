@@ -9,12 +9,6 @@ Recipes Featured:
 <br>
 https://www.allrecipes.com/recipe/216564/swedish-meatballs-svenska-kottbullar/
 <br>
-https://www.allrecipes.com/recipe/240493/swedish-rice-pudding/
-<br>
 https://www.allrecipes.com/recipe/68293/norwegian-krumkake/
 <br>
 https://www.allrecipes.com/recipe/147536/dansk-aebleskiver-danish-doughnuts/
-<br>
-https://www.allrecipes.com/recipe/18123/finnish-nissua/
-<br>
-https://www.allrecipes.com/recipe/17210/finnish-pannu-kakku/
